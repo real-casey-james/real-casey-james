@@ -9,5 +9,3 @@ I am looking to join an organisation that will support my growth, help develop m
 Check out my portfolio: https://real-casey-james.github.io
 
 LinkedIn: https://www.linkedin.com/in/kcsj/
-
-Lets talk!
